@@ -1,0 +1,2 @@
+# kodluyoruzucuncurepo
+bölüm sonu çalışması
